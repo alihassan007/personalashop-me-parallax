@@ -1,0 +1,1 @@
+# personalashop-me-parallax
